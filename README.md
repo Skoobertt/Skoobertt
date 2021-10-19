@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Skoobertt
+- 👀 I’m interested in game development and coding
+- 🌱 I’m currently learning game development and coding
+- 📫 How to reach me tylarlacey15@gmail.com
